@@ -1,6 +1,6 @@
-# Module 5 Individual Problem Set
+# Module 7 Individual Problem Set
 
-Please complete one problem from the Module 5 Problem Set. The other problem will be completed with the help of a partner.
+Please complete 3 of the first 4 problems from the Module 7 Problem Set. The final problem will be completed with the help of a partner.
 
 ---
 
